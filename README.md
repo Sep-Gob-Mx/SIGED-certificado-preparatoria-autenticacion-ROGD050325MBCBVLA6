@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-ROGD050325MBCBVLA6
+ROGD050325MBCBVLA6
